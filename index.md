@@ -47,4 +47,4 @@
 
 本プライバシーポリシーに関するお問い合わせは、以下までお願いいたします。
 
-**Email:** airless.oo4@gmail.com
+**Email:** airlis.oo4@gmail.com
